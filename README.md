@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nenagol6
+- 👋 Hi, I’m @Nenagold6
 - 👀 I’m interested in hacking and cypto
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on anyone
