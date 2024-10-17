@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nenagol6
+- 👀 I’m interested in hacking and cypto
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on anyone
+- 📫 How to reach me ... +2349137524850
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
